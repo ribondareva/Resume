@@ -1,1 +1,1 @@
-Резюие доступно по ссылке: https://ribondareva.github.io/Resume/
+Резюме доступно по ссылке: https://ribondareva.github.io/Resume/
